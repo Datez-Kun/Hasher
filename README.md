@@ -4,7 +4,7 @@
 
 # HELP CENTER
 <a href ="https://mbasic.facebook.com/riski.darmawan.1690671">CHAT MY TO ACCOUNT FACEBOOK</a>
-<br><h1><a href="https://api.whatsapp.com/send?phone=6288261764938&text=ASSALAMUALAIKUM%20ADMIN%20SAYA%20INGIN%20LICENSE%20HASHER">CHAT MY WHATSAPP </a></h1><br>
+<a href="https://api.whatsapp.com/send?phone=6288261764938&text=ASSALAMUALAIKUM%20ADMIN%20SAYA%20INGIN%20LICENSE%20HASHER">CHAT MY WHATSAPP </a>
 
 # INSTALL ON TERMUX
 ```
