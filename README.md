@@ -22,4 +22,34 @@ cd Hasher
 python2 hasher.py
 ```
 
+# Free License
+```
+mikuna5bq2kuu
+Abogabegaefi1y3
+pinajquaqjuabb
+macet52aaremkunek
+piquennadrakqma147aa
+ajagagahahavqgayag
+kahwbwbana77ahwg
+hahquw72j18qjq8q
+jahafw71816262baha5
+jajwhqha618191gwgw6j
+aiqiqnabah181jq17
+jakamwnabagajuquaiw9
+jauwiw816w5wywhwbwgqu
+jayayqiqkqbagauqj
+quqiaha8172baiq9
+riski_1504instagram
+kauqiqnaba17q9qb
+rizkyganz1504kahquah
+iakwajaahwggwhaa817oqja
+facebookrizkyid111
+===bwjabase64ajaagja
+baagbav-base64baf==
+makanyajangangoblokxxx
+mueheheheeh525y2qgqh
+ahyauqhwha6w8qhagagi
+aajaba7w52uabw8wh
+```
+
 ## [THANK YOU FOR USING MY TOOLS]
